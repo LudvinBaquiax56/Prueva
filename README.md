@@ -1,8 +1,8 @@
-# WACHAAAAAAAA CHECA
+# WACHAAAAAAAA Esta
 
 ## Kick Boutowskiiii
 
-## Ludvin >:v
+## Ludvin >:v xD
 
 ## Candy Carrillo
 
