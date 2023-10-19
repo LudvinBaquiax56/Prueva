@@ -4,5 +4,5 @@
 
 ## Ludvin >:v xD
 
-## Candy
+## Candy Carrillo
 
